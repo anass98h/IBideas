@@ -1,3 +1,3 @@
 # IBideas
-emil is a weedlord
+emil is a zonedout
 we need to start ToK now 
